@@ -1,8 +1,9 @@
-# 欢迎来到 NiuNiuStudio 的摸鱼专区！
-<br>
 
 ![QQ群二维码](images/1.png)
 
+# 欢迎来到 NiuNiuStudio 的摸鱼专区！
+
+<br>
 <br>
 <br>
 
