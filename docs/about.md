@@ -1,4 +1,8 @@
+<br>
+
 ![QQ群二维码](images/1.png)
+
+<br>
 
 # SNP专家
 <br>
